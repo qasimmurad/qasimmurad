@@ -1,4 +1,4 @@
-Hi, I’m @qasimmurad, interested in Artificial interested in Artificial Intelligence and Cognitive Neuroscience. 
+Hi, I’m @qasimmurad, interested in Artificial Intelligence and Cognitive Neuroscience. 
 
 
 <!---
